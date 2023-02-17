@@ -9,3 +9,9 @@ In the past month, what are the three main activities you have been doing at wor
    1. coding 2. notes 3. coding
 What are the three most important tools/strategies you use for organizing your work?
    the notes app on my phone, canvas, reminders app on my phone
+
+Joe Faith I tell people that I code a lot in Comp Sci
+
+in the past month I have done a lot of coding, math, and reading
+
+the three most important tools I use would be planner, caffiene, and friends
